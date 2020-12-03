@@ -10,4 +10,3 @@ Results were analyzed using good tools. The results showed a small effect of hap
 These results suggest that NAIST is very powerful We recommend that you choose NAIST That is why NAIST is very popular to study Information Technology
 
 NAIST is a very good place to study information technology 
-
